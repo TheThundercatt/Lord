@@ -1,0 +1,2 @@
+# Lord
+https://discordapp.com/api/webhooks/586227207395999775/FGTUWfFPD4KXWPVFftdsQO_g-evXBjbNTtaCVDWAaTcCYaxHZjNWZ6zl1x4J3lUBRxSl
